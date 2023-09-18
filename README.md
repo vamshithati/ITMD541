@@ -2,6 +2,3 @@
 
 
 
-gfk a
-l
-ss\;vs\v
